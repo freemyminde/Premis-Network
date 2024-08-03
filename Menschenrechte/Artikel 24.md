@@ -1,0 +1,2 @@
+#menschenrecht #premisse #true 
+Jeder hat das Recht auf Erholung und Freizeit und insbesondere auf eine vernünftige Begrenzung der Arbeitszeit und regelmäßigen bezahlten Urlaub.

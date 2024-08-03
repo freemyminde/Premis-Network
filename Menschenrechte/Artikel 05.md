@@ -1,0 +1,2 @@
+#menschenrecht #premisse #true 
+Niemand darf der Folter oder grausamer, unmenschlicher oder erniedrigender Behandlung oder Strafe unterworfen werden.

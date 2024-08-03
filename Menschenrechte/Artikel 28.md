@@ -1,0 +1,2 @@
+#menschenrecht #premisse #true 
+Jeder hat Anspruch auf eine soziale und internationale Ordnung, in der die in dieser Erklärung verkündeten Rechte und Freiheiten voll verwirklicht werden können.

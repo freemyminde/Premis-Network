@@ -1,0 +1,2 @@
+#menschenrecht #premisse #true 
+Jeder hat das Recht auf Gedanken-, Gewissens- und Religionsfreiheit; dieses Recht schließt die Freiheit ein, seine Religion oder seine Weltanschauung zu wechseln, sowie die Freiheit, seine Religion oder seine Weltanschauung allein oder in Gemeinschaft mit anderen, öffentlich oder privat durch Lehre, Ausübung, Gottesdienst und Kulthandlungen zu bekennen.

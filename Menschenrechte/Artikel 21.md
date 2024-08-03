@@ -1,0 +1,6 @@
+#menschenrecht #premisse #true 
+(1) Jeder hat das Recht, an der Gestaltung der öffentlichen Angelegenheiten seines Landes unmittelbar oder durch frei gewählte Vertreter mitzuwirken.
+
+(2) Jeder hat das Recht auf gleichen Zugang zu öffentlichen Ämtern in seinem Lande.
+
+(3) Der Wille des Volkes bildet die Grundlage für die Autorität der öffentlichen Gewalt; dieser Wille muß durch regelmäßige, unverfälschte, allgemeine und gleiche Wahlen mit geheimer Stimmabgabe oder einem gleichwertigen freien Wahlverfahren zum Ausdruck kommen.

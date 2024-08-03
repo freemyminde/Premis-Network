@@ -1,2 +1,4 @@
 # Premis-Network
 This repository is about writing down premises and conclusions built up on those. Every contributor welcome!
+# Fundamental thoughts
+The creator of this repository beliefs, that there can exist a network of premises and conclusions, which are logically linked. Every node of this network can and should be questioned and changed based on the strongest logical argument. As this, the repository can serve as a basis to create a logic based ethics, which is able to get better over time and be used as a strong tool to reference as discussion tested statements with references on  critiques and how they are resolved.
